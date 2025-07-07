@@ -16,4 +16,4 @@
 此外，保护个人隐私也非常重要，避免在不安全的网站上输入个人信息。
 通过正规平台，你可以轻松找到最新的免费日本AV资源，享受安全且高质量的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/td20250707/td06 ）</span>
